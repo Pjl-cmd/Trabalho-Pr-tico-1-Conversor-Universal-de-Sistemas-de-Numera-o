@@ -7,7 +7,7 @@ Universidade Federal de Lavras (UFLA) — 2026/1
 
 # Vídeo apresentação
 
-Vídeo que apresenta o trabalho prático da disciplina: https://youtu.be/XXl9V5htnpk
+Vídeo que apresenta o trabalho prático da disciplina: https://youtu.be/iJvx9nAbs30
 
 ---
 
